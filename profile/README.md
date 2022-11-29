@@ -1,0 +1,1 @@
+![Zonix Lab](/profile/assets/zonix-lab-banner.png)
